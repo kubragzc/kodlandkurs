@@ -1,1 +1,2 @@
 sözlük
+kübra
